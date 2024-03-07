@@ -17,4 +17,3 @@
 #
 
 ### 💗 CAU CSE 💻
-### 💕 SEUNGJOON CHA 🐶
